@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tiyalin
+- 👀 I’m interested in playing
+- 🌱 I’m currently learning coding
+- 😄 Pronouns: they/them
